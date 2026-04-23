@@ -1,2 +1,0 @@
-# Vineetha-Fasion
-Vineetha Fasion 
